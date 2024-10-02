@@ -1,2 +1,2 @@
 # bilal-bhai
-this is my first repository and i am happy for thanksfull to your github
+this is my first repository and i am happy for (to thanksfull to your github)
